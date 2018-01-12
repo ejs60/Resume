@@ -6,7 +6,7 @@ evanstocker@yahoo.com
 Current Education
 University of Miami, Coral Gables, Florida (August 2014 – present)
 Major: Industrial Engineering / Minor: Psychology
-Completed 6 semesters / 112 credits
+Completed 7 semesters 
 GPA:  3.63 
 
 Work Experience
