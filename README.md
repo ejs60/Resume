@@ -3,7 +3,10 @@ evanstocker@yahoo.com
 954-336-3821
 Current Education
 University of Miami, Coral Gables, Florida (August 2014 – present)
+
 Major: Industrial Engineering
+Completed 7 semesters 
+
 GPA:  3.63 
 Graduation Date: May 2018
 Work Experience
